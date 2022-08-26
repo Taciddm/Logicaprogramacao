@@ -1,2 +1,0 @@
-# Logicaprogramacao
-Mensagem para você!!
